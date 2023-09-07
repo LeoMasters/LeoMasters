@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @LeoMasters
 - 👀 I’m interested in UI/UX Design
-- 🌱 I’m currently learning with the Zuri Team
+- 🌱 I just got accepted into the HNGx internship program
 - 💞️ I’m looking to collaborate on designs
 - 📫 How to reach me: via email - eohaegbulam@gmail.com or WhatsApp - +2347039884218
 
